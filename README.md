@@ -1,5 +1,5 @@
 # Profile Repo
 
-This is Believeco's profile repository.
+This is ChangeMakers profile repository.
 
 What's going to happen here? Only time will tell...
