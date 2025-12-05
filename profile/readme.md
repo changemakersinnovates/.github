@@ -1,4 +1,6 @@
-# Introducing a new marketing agency with over 100 years of experience.
+# Bringing Change through Innovation
 
-Four leading independent agencies, with deep experience and roots across Canada, came together to bring the best of independence and relationship-first service at scale. We have expertise in multiple industries, from financial institutions to automotive and from sports to aerospace, and have dedicated verticals in health and food and beverage. We’re here to transform what an agency can do, and how they do it. [Learn more about our story.](https://thechangemakers.com/)
+ChangeMakers is a unique company, bringing decades of public relations, reputation management, social impact advisory, marketing, and engagement skills to bear on a constantly changing world that is increasingly desperate for clarity. 
+
+[Learn more about our story.](https://thechangemakers.com/)
 
